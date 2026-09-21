@@ -1,0 +1,1 @@
+# Basic_Vocabulary-ETRI_Linked_Table
